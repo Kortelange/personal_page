@@ -1,0 +1,1 @@
+Personal page - Solutions for exercises
